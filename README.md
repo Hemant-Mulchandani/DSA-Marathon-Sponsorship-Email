@@ -6,6 +6,6 @@
 
   ![Mail Capture](DSA%20Marathon%20Sponsorship%20Mail%20Capture.png)
 
-# Visit to Live Interact :
+# Visit to Live Interact : 
 
   https://hemant-mulchandani.github.io/DSA-Marathon-Sponsorship-Email/ 
