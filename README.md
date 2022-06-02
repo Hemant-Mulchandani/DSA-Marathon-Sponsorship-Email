@@ -1,4 +1,4 @@
-# [DSA🏃‍♂️Marathon Sponsorship Email 📧](https://hemant-mulchandani.github.io/DSA-Marathon-Sponsorship-Email/)
+# [DSA🏃‍♂️Marathon Sponsorship Email 📬](https://hemant-mulchandani.github.io/DSA-Marathon-Sponsorship-Email/)
 
   📌 Visit to Live Interact : 🔗
 
